@@ -4,7 +4,7 @@
 
 - 3 colheres de maisena
 - 5 colheres de chocolate em pó
-- 2 ovos
+- 2 ovoso
 - 1 xícara de açúcar
 - 1 lata de leite condensado
 - 1 lata de creme de leite
